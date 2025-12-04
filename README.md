@@ -1,2 +1,2 @@
 
-- 👀 I’m interested in Embedded System / Distributed Operating System
+- 👀 I’m interested in Embedded System / Data Mining and something can enhance your life !!
